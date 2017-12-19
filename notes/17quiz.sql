@@ -1,4 +1,3 @@
-50 questions
 What king of Gath provided refuge for David when he was pursued by Saul? (name rhymes with a kebab: Achish)
 What enemy of David ravages his temporary homebase of Zilag? (rhymes with something you fly - Amalekites)
 Who kills King Saul? (Philitines, bonus: himself as his armor bearers could not bring themselves to comply with Sauls order to finish him)
@@ -46,4 +45,16 @@ Who next tries to take over from David as king? (Andonijah - Davids 4th son gath
 Who warns David of this plot (Nathan raises this to Bathsheba and Solomon)
 How long was Davids reign? (7(J) + 33 (I) = 40)
 How does Solomon deal with Abiathar? (no more priest)
-
+Who kills Joab? (Benaniah)
+What does Solomon with for when God grants him anything? (wisdom to rule over Israel)
+What does God actually grant him? (wisdom, wealth, honor, lifespan)
+How does Solomon determine the real mother in the case of the 2 mothers:1 baby? (suggests to cut the baby in half to decide the more suitable mother)
+Who is King Solomons secretary of defense? (Beneniah)
+Vice president? (Azariah)
+Chief priest? (Zadok)
+How many horses does Solomon own? (12k)
+On what foot is Elder Jerrys sprain? (right)
+What does Awana stand for? (Approved Workmen Are not A)
+Name 5 people who went on the Taiwan mission this summer (Rebecca, Caleb, Jay, Selena, Ann, Amy, Elder Jerry)
+What is Pastor Phils goto boba drink? ()
+What is Howards license plate number? ()
