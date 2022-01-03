@@ -8,7 +8,7 @@ Just my notes!
 1. *Individual vs group*: west - autonomy vs cohesiveness of family/clan
 2. *Theory vs relationship* - western problem solution is to study to find best way to solve vs finding a solution without offending
 3. *Differences vs equality*: looks at Pastor as friend vs as leader.. shows respect
-4*. Love vs respect* - shown outwardly with hug/kiss vs rules and regulation.. respect ~= love
+4. *Love vs respect* - shown outwardly with hug/kiss vs rules and regulation.. respect ~= love
 5. *Self-confidence vs humility* - outwardly talk about strength/accomplishments vs hide accomplishments and emphasize weaknesses.. detrimental to success in western corporate world
 6. *Organism vs organization* - accustomed to organizational structure vs uncomfortable.. elaborating.. oriented to mystical/natural or pragmatic/social (left brain/cognitive vs right brain/aesthetic)
 7. *Leadership* - credential vs service record
@@ -27,12 +27,12 @@ Just my notes!
 1. Community cooking classes
 2. Community children choir
 3. Caroling
-4. Carpenter workshop
+4. Carpenter funs hop
 5. Christmas outreach
 6. Summer BBQ
 7. Community center
 8. Easter egg hunt
-9. Evangelistic conference
+9. Evangelistic conferenza
 10. Free laptops
 11. Tax prep
 12. Hallelujah party
