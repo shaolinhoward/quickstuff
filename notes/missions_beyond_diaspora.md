@@ -27,12 +27,12 @@ Just my notes!
 1. Community cooking classes
 2. Community children choir
 3. Caroling
-4. Carpenter funs hop
+4. Carpenter workshop
 5. Christmas outreach
 6. Summer BBQ
 7. Community center
 8. Easter egg hunt
-9. Evangelistic conferenza
+9. Evangelistic conference
 10. Free laptops
 11. Tax prep
 12. Hallelujah party
