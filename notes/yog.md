@@ -1,0 +1,23 @@
+# yog
+
+- rest
+- cross legged
+	- hands together to top 
+	- to each side
+- on belly
+	- alternate arm/leg ups
+	- both legs/arms up
+- downward dog
+- chodaranga decessina - cobra pose 
+- to downward facing dog
+	- 3 legged dog (4th leg behind)
+		- knee to heart
+		- knee to rest on floor
+	- leg to chest, flat pose
+		- try to reach for foot behind you
+		- stretch back with arms behind you
+	- 
+- shivasina (corpse pose)
+- comfortable seated position
+- gratitude appreciation
+- self and community
