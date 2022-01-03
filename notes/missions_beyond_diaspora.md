@@ -38,34 +38,33 @@ Just my notes!
 12. Hallelujah party
 13. Goodwill truck
 14. Harvest fest
-15. Relationship Weimar
+15. Relationship seminar
 16. Women tea
 17. Health and partner seminars
 18. karaoke
-19. Saturday off corner
-20. hiking
-21. Serve meals
-22. Thanksgiving dinner
-23. toastmaster
-24. Warriors fellowship night
-25. Hight school dance competition
-26. Counseling center
-27. knitting
-28. Alpha course
-29. Piano class
-30. Cook sale
-31. Holiday bazaar/concerts
-32. Line dancing
-33. Music/art classes
-34. Chinese school
-35. New immigrant ministry
-36. ESL
-37. Neighborhood outreach
-38. Prayer walk
-39. City Team
-40. City Impact
-41. Women’s recovery
-42. Sports ministry
+19. hiking
+20. Serve meals
+21. Thanksgiving dinner
+22. toastmaster
+23. Warriors fellowship night
+24. Hight school dance competition
+25. Counseling center
+26. knitting
+27. Alpha course
+28. Piano class
+29. Cook sale
+30. Holiday bazaar/concerts
+31. Line dancing
+32. Music/art classes
+33. Chinese school
+34. New immigrant ministry
+35. ESL
+36. Neighborhood outreach
+37. Prayer walk
+38. City Team
+39. City Impact
+40. Women’s recovery
+41. Sports ministry
 
 ### The Dimensions of Culture [Beginners Guide to Crossing Cultures, Patty Lane]
 1. Context
