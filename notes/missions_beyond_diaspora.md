@@ -4,7 +4,7 @@ Just my notes!
 ```
 
 ## Local Cross-Cultural Ministry of Chinese Congregations in the San Francisco Bay Area
-### Difference between OBC (overseas born Chinese) and ABC`
+### Difference between OBC (overseas born Chinese) and ABC
 1. Individual vs group: west - autonomy vs cohesiveness of family/clan
 2. Theory vs relationship - western problem solution is to study to find best way to solve vs finding a solution without offending
 3. Differences vs equality: looks at Pastor as friend vs as leader.. shows respect
