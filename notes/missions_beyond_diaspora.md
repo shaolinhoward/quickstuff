@@ -5,17 +5,17 @@ Just my notes!
 
 ## Local Cross-Cultural Ministry of Chinese Congregations in the San Francisco Bay Area
 ### Difference between OBC (overseas born Chinese) and ABC
-1. Individual vs group: west - autonomy vs cohesiveness of family/clan
-2. Theory vs relationship - western problem solution is to study to find best way to solve vs finding a solution without offending
-3. Differences vs equality: looks at Pastor as friend vs as leader.. shows respect
-4. Love vs respect - shown outwardly with hug/kiss vs rules and regulation.. respect ~= love
-5. Self-confidence vs humility - outwardly talk about strength/accomplishments vs hide accomplishments and emphasize weaknesses.. detrimental to success in western corporate world
-6. Organism vs organization - accustomed to organizational structure vs uncomfortable.. elaborating.. oriented to mystical/natural or pragmatic/social (left brain/cognitive vs right brain/aesthetic)
-7. Leadership - credential vs service record
+1. *Individual vs group*: west - autonomy vs cohesiveness of family/clan
+2. *Theory vs relationship* - western problem solution is to study to find best way to solve vs finding a solution without offending
+3. *Differences vs equality*: looks at Pastor as friend vs as leader.. shows respect
+4*. Love vs respect* - shown outwardly with hug/kiss vs rules and regulation.. respect ~= love
+5. *Self-confidence vs humility* - outwardly talk about strength/accomplishments vs hide accomplishments and emphasize weaknesses.. detrimental to success in western corporate world
+6. *Organism vs organization* - accustomed to organizational structure vs uncomfortable.. elaborating.. oriented to mystical/natural or pragmatic/social (left brain/cognitive vs right brain/aesthetic)
+7. *Leadership* - credential vs service record
 8. Chinese laypeople recognize pastor from tenure of service rather than degree/ordination
-9. Spiritual gifts vs secular crews - Chinese value secular (age, speak Chinese, family background, degrees, marriage, children, house, leadership qualification, middle class status) vs academic training and professional experience
-10. Lubrication and preservation - eg importance of wedding ceremony as a communal affair.. pastor represents God’s blessing upon families.. rituals as value affirmations
-11. Conflict management -  confrontation vs consolidation.. in American culture direct confrontation is normal and expected.. for Chinese this is face-losing and can tear down communities.. preference to deal through indirect conflation
+9. *Spiritual gifts vs secular crews* - Chinese value secular (age, speak Chinese, family background, degrees, marriage, children, house, leadership qualification, middle class status) vs academic training and professional experience
+10. *Lubrication and preservation* - eg importance of wedding ceremony as a communal affair.. pastor represents God’s blessing upon families.. rituals as value affirmations
+11. *Conflict management* -  confrontation vs consolidation.. in American culture direct confrontation is normal and expected.. for Chinese this is face-losing and can tear down communities.. preference to deal through indirect conflation
 
 ### Contemporary Issues in Diaspora Missiology
 #### Chinese culture and relational paradigm
